@@ -1,0 +1,1 @@
+plano automático 
